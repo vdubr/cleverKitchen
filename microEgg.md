@@ -12,4 +12,4 @@ Fast, simply, delicious and chep foot.
 - microwave
 - stop watch
  
-
+![Alt text](http://www.srecepty.cz/system/images/9380/full.quail_egg.jpg "quail egg")
