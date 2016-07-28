@@ -5,7 +5,7 @@ Fast, simply, delicious and cheep foot.
 ## Ingredients
 - 4 quail egg
 - grated Italian parmesan
-- virgin olive oil
+- extra virgin olive oil
 - chili pepper
 - saffron
 
